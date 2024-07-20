@@ -1,1 +1,1 @@
-# resume
+https://zeynepalmsl.github.io/resume/
